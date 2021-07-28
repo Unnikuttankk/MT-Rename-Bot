@@ -40,7 +40,7 @@ If you Find Any Bugs Or Want to Give Your Feedbacks Then Kindly Contact Me Throu
 [Telegram](https://telegram.dog/u7994642939) 
 
 Also Support Our
-[Mo Tech YT](https://t.me/filmgallerydisscussion) 
+[FILM GALLERY](https://t.me/filmgallerydisscussion) 
 </pre>
 </p>
 </details>
