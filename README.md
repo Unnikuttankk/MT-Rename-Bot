@@ -37,10 +37,10 @@ Deploy To Hereku👇
 <pre>
 If you Find Any Bugs Or Want to Give Your Feedbacks Then Kindly Contact Me Through
 
-[Telegram](https://telegram.dog/No_OnE_Kn0wS_Me) 
+[Telegram](https://telegram.dog/u7994642939) 
 
 Also Support Our
-[Mo Tech YT](https://telegram.dog/Mo_Tech_YT) 
+[Mo Tech YT](https://t.me/filmgallerydisscussion) 
 </pre>
 </p>
 </details>
