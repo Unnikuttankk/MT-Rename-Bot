@@ -1,4 +1,4 @@
-## MT Rename Bot
+## Rename Bot
 
 </p>
 <p align="center">
